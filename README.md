@@ -25,5 +25,6 @@
 
 Со мной можно связаться с помощью [ВКонтакте.](http://www.vk.com/tuskwyn)  
 А это, собственно, и я.
+
 ----------
 ![alt text](https://pp.userapi.com/c841522/v841522003/54be1/ivC7HS9cgHg.jpg)
